@@ -1,2 +1,2 @@
-# Sanndra_porfolio-
+# Sandra_porfolio-
 My Personal Portfolio 
